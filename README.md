@@ -2,7 +2,7 @@
 
 **`Estudante cibersegurança`**
 
-Me chamo Omara Antônia Alves dos Santos, tenho 25 anos e sou natural de Minas Gerais. Concluí o ensino médio em escola pública, com o curso técnico em administração. Atualmente, estou cursando Cibersegurança na Uniasselvi e estou no programa de Cibersegurança da JáBrasil. Sou apaixonada por tecnologia e compartilho meu conhecimento através do meu Linkedin "[Omara Antonia](https://www.linkedin.com/in/omara-antonia/)", onde pontuo o inicio dos meus estudos e aprendizagens na defesa cibernética, também tenho um perfil no instagram voltado para a area de desenvolvimento "[@simplificaomara](https://www.instagram.com/simplificaomara?igsh=MWE5MnFsaTJ6ZWFxMw%3D%3D&utm_source=qr/)" onde dou dicas de designer gráfico e como a criar projetos web.
+Me chamo Omara Antônia Alves dos Santos, tenho 25 anos e sou natural de Minas Gerais. Concluí o ensino médio em escola pública, com o curso técnico em administração. Atualmente, estou cursando Cibersegurança na Uniasselvi e estou no programa de Cibersegurança da JáBrasil. Sou apaixonada por tecnologia e compartilho meu conhecimento através do meu Linkedin "[Omara Antonia](https://www.linkedin.com/in/omara-antonia/)", onde pontuo o inicio dos meus estudos e aprendizagens na defesa cibernética, também tenho um perfil no instagram voltado para a area de desenvolvimento "[@simplificaomara](https://www.instagram.com/simplificaomara?igsh=MWE5MnFsaTJ6ZWFxMw%3D%3D&utm_source=qr/)" onde pretendo dar dicas de designer gráfico e como a criar projetos web.
 
 ## 📱 Redes Sociais e Contato
 
