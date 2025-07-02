@@ -82,8 +82,6 @@ Me chamo Omara Antônia Alves dos Santos, tenho 25 anos e sou natural de Minas G
 
 - Desenvolver habilidades em análise de vulnerabilidades
 - Aprender sobre testes de penetração
-- Obter certificações na área de segurança
-- Contribuir com a comunidade de cibersegurança
 - Especializar-me em segurança defensiva
 
 ---
