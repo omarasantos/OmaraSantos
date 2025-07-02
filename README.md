@@ -1,4 +1,4 @@
-# 👩🏻‍💻 Omara Santos
+# 👩🏻‍💻 Omara Antônia
 
 **`Estudante cibersegurança`**
 
